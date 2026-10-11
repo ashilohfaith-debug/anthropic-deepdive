@@ -1,0 +1,3 @@
+- Skepticism with your answers
+- Moral conflict at work
+- Breadth over depth
